@@ -36,7 +36,7 @@ Sou movido por **inovação** e busco transformar **dados em soluções estraté
 
 ## 📬 Vamos Conversar!
 
-🔗 **LinkedIn:** [Seu LinkedIn]([https://www.linkedin.com/in/luucasgabriel/])
+🔗 **LinkedIn:** https://www.linkedin.com/in/luucasgabriel/
 
 ---
 
